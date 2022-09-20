@@ -31,3 +31,8 @@ when people were condemmed to firey deaths as Witches and Pagans.  The chant
 "burn!witch!burn!" can be found in the MAKLU text, in all its pristine glory.
   Indeed, Cthulhu Calls.
           The Conjuration "The Binding of the Evil Sorcerers"
+
+# Original
+AJ Azif - In Arabic, written by Abd al-Hazrad, c. 730 A.D. Original form is unknown but 
+numerous manuscript versions were long circulated among various medieval scholars. As early as the 
+12th century this version was referred to as lost. 
